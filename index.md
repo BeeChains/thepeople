@@ -1,6 +1,6 @@
 ## Welcome to WE.THEPEOPLE
 
-THEPEOPLE is a [Handshake](https://handshake.org) Blockchain Top Level Domain as a reminder that WE THE PEOPLE must STAND AS ONE!! 
+THEPEOPLE is a [Handshake](https://handshake.org) Blockchain Top Level Domain built as a reminder that WE THE PEOPLE must STAND AS ONE!! 
 
 DEFEND THE SACRED!
 
