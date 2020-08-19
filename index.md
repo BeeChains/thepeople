@@ -1,7 +1,7 @@
-## Welcome to WE.THEPEOPLE
+## WE.THEPEOPLE Welcomes You!!
 
 THEPEOPLE is a [Handshake](https://handshake.org) Blockchain Top Level Domain built as a reminder that WE THE PEOPLE must STAND AS ONE!! 
 
-DEFEND THE SACRED!
+DEFEND THE SACRED! Inner I Net Foundation!
 
-Inquiry [bthespirit777@protonmail](https://protonmail.com/)
+- [admin.networkmanager](https://protonmail.com/)
