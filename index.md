@@ -4,4 +4,4 @@ THEPEOPLE is a [Handshake](https://handshake.org) Blockchain Top Level Domain bu
 
 DEFEND THE SACRED! Inner I Net Foundation!
 
-- [admin.networkmanager](https://protonmail.com/)
+- [admin.networkmanager](http://admin.networkmanager/)
